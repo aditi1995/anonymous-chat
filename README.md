@@ -4,3 +4,4 @@ Sonali Gupta
 Vasundhara Sharma  
 Ayush Rastogi  
 Parth Javiya
+Aditi Mittal
